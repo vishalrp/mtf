@@ -7,5 +7,5 @@ Vishal Patel
 Adam
 Hussain
 
-We made a lot of progress! 
+We have made a lot of progress! 
 
